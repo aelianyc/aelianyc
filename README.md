@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on QA projects 
 - 📫 How to reach me eliacreativeco@gmail.com
 
-<
